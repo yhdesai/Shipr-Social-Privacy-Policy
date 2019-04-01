@@ -1,0 +1,1 @@
+# Shipr-Social-Privacy-Policy
